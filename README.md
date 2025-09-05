@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 
 - 📫 How to reach me: bagcielife@gmail.com
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: Fell in love with geometry the time I was introduced to it ❤
+- ⚡ Fun fact: Fell in ❤ with geometry the time I was introduced to it 
