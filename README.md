@@ -14,6 +14,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning GitHub
 ### Who am I?
 - Call me Zerrin
-- How to reach me: bagcielife@gmail.com
 - Pronouns: they/them
 - Fun fact: Fell in ❤ with geometry the time I was introduced to it 
+### How to reach me: 
+- bagcielife@gmail.com
